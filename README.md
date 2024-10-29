@@ -2,6 +2,8 @@
 
 meu nome é **_Pollyana de Oliveira Moreira_** 
 
+estou estudando na {Alura}(https://www.alura.com.br)
+
 sou aluna do **_Primeiro B_**
 
 tenho **_15 anos_**
