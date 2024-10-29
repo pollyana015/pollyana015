@@ -8,7 +8,6 @@ tenho **_15 anos_**
 
 ### Para entrar em contato comigo:
 ### oliveira.moreira.pollyana@escola.pr.gov.br
- ### @:pollyana_oliveira 
+### @:pollyana_oliveira 
 
- 
- 
+![](https://media1.tenor.com/m/L2dlGxhk_qkAAAAd/smile.gif)
