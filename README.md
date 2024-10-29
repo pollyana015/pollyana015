@@ -10,4 +10,4 @@ tenho **_15 anos_**
 ### oliveira.moreira.pollyana@escola.pr.gov.br
 ### @:pollyana_oliveira 
 
-![](https://media1.tenor.com/m/L2dlGxhk_qkAAAAd/smile.gif)
+![](https://media1.tenor.com/m/M_HYbyotRHwAAAAd/sad.gif)
