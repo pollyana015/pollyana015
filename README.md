@@ -1,8 +1,14 @@
-## olá esse é o meu perfil 🫶
+## olá esse é o meu perfil ❣️
 
 meu nome é **_Pollyana de Oliveira Moreira_** 
 
-suo aluna do **_Primeiro B_**
+sou aluna do **_Primeiro B_**
 
 tenho **_15 anos_**
 
+### Para entrar em contato comigo:
+### oliveira.moreira.pollyana@escola.pr.gov.br
+ ### @:pollyana_oliveira
+
+ 
+ 
